@@ -1,1 +1,1 @@
-![](assets/FotoTotal.JPG)
+![](assets/FondoTotal.JPG)
